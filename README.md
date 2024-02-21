@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Software Developement
 - 🌱 I’m currently learning ... Pega PRPC
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...reddiprasad.mullagooru@gmail.com
+- 📫 How to reach me ... reddiprasad.mullagooru@gmail.com
 - 😄 Pronouns: ...Prasad
 - ⚡ Fun fact: ...
 
